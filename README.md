@@ -12,7 +12,7 @@ It's not yet finished, but I'll keep working on it, if I'll have any free time.
 
 > Cars, Shooting and Drifting.
 
-What more an ordinary male would need to be happy? Nothing.
+What more an ordinary male would need to be happy about? Nothing.
 
 ### Tools I used
 
